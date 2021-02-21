@@ -1,5 +1,5 @@
-Thanks For Using K.I.S.T VPN...Enjoy Using Out Vpn
-We Also Have GTM NO LOAD AND SMART NO LOAD NEEDED VPB
+➖➖➖Welcome To Knight.Internet.Solution.Vpn➖➖➖
+We Also Have GTM NO LOAD AND SMART NO LOAD NEEDED VPN
 For Comments and Suggestion Please Click + Sign Under 
 And Contact Developer
 
